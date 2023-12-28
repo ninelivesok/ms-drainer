@@ -1,7 +1,7 @@
 
 ![Logo](https://i.imgur.com/1GsPIKr.jpg)
 
-#### Join our telegram for more info: [Apparel Drainer](https://t.me/appareldrainer)
+#### Join our telegram for more info: [Apparel Drainer](https://t.me/apparel_drainer)
 #### You contact me on Telegram: [@Apparel_Dev](https://t.me/apparel_dev)
 
 
